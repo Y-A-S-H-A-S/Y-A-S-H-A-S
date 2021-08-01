@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Y-A-S-H-A-S
+- 👀 I’m interested in EVERYTHING, INTERESTING 
+- 🌱 I’m currently learning ROBOTICS AND AUTOMATION 
+- 💞️ I’m looking to collaborate on VERY INTERESTING TOPICS
+- 📫 How to reach me @yashas_kumar.t via Instagram 
+-  😎..🤖..🦾...🇮🇳
